@@ -1,3 +1,3 @@
 # Test
 
-Inshallah it will work
+Inshallah it will work.Ameen!
